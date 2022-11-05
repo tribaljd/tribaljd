@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Carlos Méndez
+- 👋 Hi
 - 👀 I’m interested in public Relationships and allá te world of cripto...
 - 🌱 I’m currently learning about technology
 - 💞️ I’m looking to collaborate on RRPP, and comunications
